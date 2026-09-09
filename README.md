@@ -1,4 +1,4 @@
-# ⚔️ STAR WARS Zero Company Ultimate Assistant | God Mode, Unlimited Credits & Teleport
+# ⚔️ STAR WARS Zero Company Ultimate Assistant | God Mode, Unlimited Credits & Teleport 
 
 ![STAR WARS Zero Company Ultimate Assistant Preview](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTz8paJNogq_3lPWhew1yrcIBfr0FwwAgCgw6J2wnXfDw&s=10)
 
